@@ -2,3 +2,6 @@
 <p align="center"><img width="400" src="https://media.discordapp.net/attachments/1174044127424426079/1473662650075316234/Untitled588_20260218124740.png?ex=699706cb&is=6995b54b&hm=e44ce8f172cc5dfa52ed54b050885f383247e8cc32f8a71fff7e4510805308e8&=&format=webp&quality=lossless&width=995&height=774" alt="hello">
 <p align="center">$\tiny\textcolor{#BFC8A1}{\textsf{"obi wan, may the force be with you."}}$
 <p align="center">$\small\textcolor{#BFC8A1}{\textsf{this is used for PONYTOWN only. C+H freely unless with friends <3}}$
+<p align="center"><img width="400" src="https://media.discordapp.net/attachments/1174044127424426079/1473670252305977458/Untitled589_20260218131847.png?ex=69970ddf&is=6995bc5f&hm=6e95eeb3387f6e350efcce3094d3f12219905235562414a56041a0e657563f72&=&format=webp&quality=lossless&width=1836&height=612" alt="hello">
+
+ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[directory](https://rentry.co/hansolo)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](https://ani.atabook.org)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://qnakin.straw.page)
