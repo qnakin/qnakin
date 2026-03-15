@@ -2,4 +2,4 @@
 <p align="center">$\tiny\textcolor{#BFC8A1}{\textsf{"obi wan, may the force be with you."}}$
 <p align="center">$\small\textcolor{#BFC8A1}{\textsf{this is used for PONYTOWN only. C+H freely unless with friends <3}}$
 
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [directory](https://rentry.co/hansolo)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](https://ani.atabook.org)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://light-saber.straw.page)
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [directory](https://rentry.co/hansolo)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](https://ani.atabook.org)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://light-saber.straw.page)
