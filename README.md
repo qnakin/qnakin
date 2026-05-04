@@ -8,5 +8,5 @@
 
 <p align="center">$\tiny\textcolor{#73cae3}{\textsf{c+h when stated! whisper to ask if around friends!}}$
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀[ⓓⓘⓡ](https://rentry.co/hansolo)⠀ ⠀ ⠀ ⠀⠀ ⠀[ⓐⓣⓐ](https://ani.atabook.org/)⠀ ⠀ ⠀ ⠀⠀ ⠀[ⓢⓣⓡⓐⓦ](https://light-saber.straw.page/)
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀[ⓓⓘⓡ](https://rentry.co/hansolo)⠀ ⠀ ⠀ ⠀⠀ ⠀[ⓐⓣⓐ](https://ani.atabook.org/)⠀ ⠀ ⠀ ⠀⠀ ⠀[ⓢⓣⓡⓐⓦ](https://light-saber.straw.page/)
 
