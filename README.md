@@ -2,4 +2,4 @@
 
 
 
-<p align="center">$\tiny\textcolor{#73cae3}{\textsf{redoing everythign}}$
+<p align="center">$\tiny\textcolor{#73cae3}{\textsf{c+h when stated! whisper to ask if around friends!}}$
