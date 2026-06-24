@@ -1,4 +1,4 @@
-<p align="center"><img width="90" src="https://komarev.com/ghpvc/?username=qnakin&label=󠀠󠀠PADAWANS&color=73cae3">
+<p align="center"><img width="90" src="https://komarev.com/ghpvc/?username=qnakin&label=󠀠󠀠PADAWANS&color=blue">
 
 
 <p align="center">redoing for the billionth time
