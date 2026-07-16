@@ -8,6 +8,6 @@
 
 
 
-<p align="center">@title-town + @fan-town
+<p align="center">@title-town + @fan-town + @pt-walk-of-fame
 
  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀attack my [artfight](https://artfight.net/~qni)
