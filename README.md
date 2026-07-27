@@ -11,5 +11,3 @@
 <p align="center">@title-town + @fan-town + @pt-walk-of-fame
 
  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀attack my [artfight](https://artfight.net/~qni)
-
- <p align="center">please iwec at the moment, im going through a lot of things at the moment relationship and family wise
