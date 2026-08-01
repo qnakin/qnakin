@@ -10,4 +10,4 @@
 
 <p align="center">@title-town + @fans-town + @pt-hall-of-media #1 ani proof les gooo also well known on @pt-walk-of-fame
 
-<p align="center">thanks so much for 500 guys ily all
+<p align="center">ok what sped is unfollowing i witeraly had 500 🤣
