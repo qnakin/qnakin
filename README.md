@@ -8,6 +8,7 @@
 
 
 
-<p align="center">@title-town + @fans-town + @pt-hall-of-media #1 ani proof les gooo also well known on @pt-walk-of-fame
+<p align="center">$\tiny{\textsf{@title-town + @fans-town + @pt-hall-of-media + @ponychievements + @ponytown-nominations number1 ani proof les gooo}}$
+<p align="center">$\tiny{\textsf{also well known on @pt-walk-of-fame and byakuya's boyfie on @ponytownyumeshippers}}$
 
-<p align="center">ok what sped is unfollowing i witeraly had 500 🤣
+<p align="center">thannkyu for 500 followers ily all :3
