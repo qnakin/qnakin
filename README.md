@@ -8,7 +8,7 @@
 
 
 
-<p align="center">$\tiny{\textsf{@title-town + @fans-town + @pt-hall-of-media + @ponychievements + @ponytown-nominations number1 ani proof les gooo}}$
+<p align="center">$\tiny{\textsf{@title-town + @fans-town + @pt-hall-of-media + @ponychievements + @ponytown-nominations + @folktown number1 ani proof les gooo}}$
 <p align="center">$\tiny{\textsf{also well known on @pt-walk-of-fame and byakuya's boyfie on @ponytownyumeshippers}}$
 
 <p align="center">thannkyu for 500 followers ily all :3
