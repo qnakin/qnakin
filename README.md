@@ -11,4 +11,4 @@
 <p align="center">$\tiny{\textsf{@title-town + @fans-town + @pt-hall-of-media + @ponychievements + @ponytown-nominations + @folktown + @charactersofpt number1 ani proof les gooo}}$
 <p align="center">$\tiny{\textsf{also well known on @pt-walk-of-fame and byakuya's boyfie on @ponytownyumeshippers}}$
 
-<p align="center">https://rentry.co/quitakin
+<p align="center">hey guys im gonna be staying on pt but limiting my time, title-town wont be continued FOR A WHILE, meaning i will come back to it at some point
