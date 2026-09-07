@@ -7,7 +7,7 @@
 
 <p align="center">$\color{#808080}{\textsf{⤹ tony me and sugar ⤸}}$
 
-<p align="center"><img width="468" height="300" alt="blur_edges (7)" src="https://github.com/user-attachments/assets/b7227cd2-9346-443d-adae-c758d19f6b86" />
+<p align="center"><img width="368" height="222" alt="blur_edges (7)" src="https://github.com/user-attachments/assets/b7227cd2-9346-443d-adae-c758d19f6b86" />
 
 
 <p align="center">$\small\color{#808080}{\textsf{ƒᥲntᥲ⠀⠀ /⠀⠀ ᥲni⠀⠀ ♡  ‿  
