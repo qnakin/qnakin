@@ -8,7 +8,7 @@
 
 
 
-<p align="center">$\tiny{\textsf{@title-town + @fans-town + @pt-hall-of-media + @ponychievements + @ponytown-nominations + @folktown + @charactersofpt + @ponytowns-rewards number1 ani proof les gooo}}$
+<p align="center">$\tiny{\textsf{@title-town + @fans-town + @pt-hall-of-media + @ponychievements + @ponytown-nominations + @folktown + @charactersofpt + @ponytowns-rewards + @ponytowncosplayers number1 ani proof les gooo}}$
 <p align="center">$\tiny{\textsf{byakuya's boyfie on @ponytownyumeshippers}}$
 <p align="center"><img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/ce82ce52-44d2-47b3-bab7-bef1282373e9" />
 
