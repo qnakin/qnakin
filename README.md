@@ -10,4 +10,6 @@
  <p align="center">$\tiny\color{#858585}{\textsf{⠀ 𐔌  ݂۫  𓏼   𝒽ᥱ𝒽im⠀ ⠀⠀ ⠀isfp⠀ ⠀⠀ ⠀⑤tᥱᥱn⠀ ♪}}$
   <p align="center">$\tiny\color{#898989}{\textsf{𓎢@title-town ownᥱr𓎡}}$
 
+<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dokdo&pause=10&color=B1B1B1&center=true&width=435&lines=%40meowsael;%40tukoian;%40plumpest;%40seishin-jpg;%40sdnryu;%40xolariis;%40zandiik;%40pibblestick" alt="Typing SVG" /></a>
+
 
