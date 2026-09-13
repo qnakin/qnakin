@@ -2,7 +2,7 @@
 ‎
 
 ‎ ‎ ‎
-
+<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dokdo&pause=10&color=B5B5B5&center=true&width=435&lines=perhaps+i've+had+a+wicked+childhood;perhaps+i've+had+a+miserable+youth;but+somewhere+in+my+wicked+miserable+past;there+must+have+been+a+moment+of+truth" alt="Typing SVG" /></a>
 <p align="center"><img width="80" src="https://komarev.com/ghpvc/?username=title-town&label=󠀠󠀠𝑝adawan𝑠&color=676767">
 
 <p align="center">$\color{#808080}{\textsf{⤹ tony me and sugar ⤸}}$
