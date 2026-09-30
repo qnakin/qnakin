@@ -17,6 +17,8 @@
 
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dokdo&pause=10&color=B1B1B1&center=true&width=435&lines=%40meowsael;%40tukoian;%40plumpest;%40seishin-jpg;%40sdnryu;%40xolariis;%40zandiik;%40pibblestick" alt="Typing SVG" /></a>
 
+<p align="center">skintrading for anakin ponies sign ata if interested or w2i
+
 ‎
 
 ‎ ‎ ‎
